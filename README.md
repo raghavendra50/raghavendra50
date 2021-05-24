@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @raghavendra50
 - 👀 I’m interested in developing apps.
 - 🌱 I’m currently learning engineering Electronics and communication department at basaveshwar engineering college bagalkot.
-- 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me by following ways
      1. Contact no- 9353233663
      2. Email id- raghavendrakv23@gmail.com
